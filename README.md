@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open VChat Bot Owner Id...
 
 
-<p align="center"><a href="https://t.me/BikashHalder"><img src="https://te.legra.ph/file/e30f5a295dd0ca45f0163.jpg"></a></p>
+<p align="center"><a href="https://t.me/ajju bhai"><img src="https://te.legra.ph/file/e30f5a295dd0ca45f0163.jpg"></a></p>
 
 
 
@@ -33,11 +33,7 @@ Click Below Picture To Open VChat Bot Owner Id...
 
 [![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/BGT_Chat)
 
-[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/Bikashgadgetstech)
-
-## YouTube 📺
-
-[YouTube Channel](https://youtube.com/channel/UCUkj6FFzdsOO5acUXVOEECg)
+[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)]
 
 
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
